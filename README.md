@@ -1,1 +1,1 @@
-# How-to-Login-to-Your-Ancestry-Account-
+# How-to-Login-to-Your-Ancestry-Account
